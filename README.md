@@ -94,7 +94,7 @@ P.S ( Personal Saving ):
 - #5 G0V: yellow star
 - #6 K0V: orange star
 - #7 M0V: red star
-- ~ stolen ( owned by the Supernova planet nad Galaxy. the computer operating systems was stolen and use at another galaxies ) computer operating systems, list:
+- ~ stolen ( owned by the Supernova planet and Galaxy. the computer operating systems was stolen and use at another galaxies ) computer operating systems, list:
 - #1 fedora
 - #2 windows
 - #3 arch linux
