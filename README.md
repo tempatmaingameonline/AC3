@@ -99,6 +99,7 @@ P.S ( Personal Saving ):
 - #2 windows
 - #3 arch linux
 - #4 red hat
-- #5 and many other 
+- #5 slackware
+- #6 and many other 
 
 
