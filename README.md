@@ -68,3 +68,20 @@ Adios !!!
 Danke. Sincerely,
 -
 Jhon Dankeg
+-
+-
+-
+-
+-
+P.S ( Personal Saving ):
+- ~ star classification/group by ( sorted and identify ) " colour " ( sample reference: https://en.wikipedia.org/wiki/Color_index ). list:
+- #1 O5V: violet star
+- #2 B0V: purple star
+- #3 A0V: deep/old blue star
+- #4 F0V: soft blue star
+- #5 G0V: yellow star
+- #6 K0V: orange star
+- #7 M0V: red star
+
+
+
