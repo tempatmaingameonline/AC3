@@ -108,6 +108,6 @@ P.S ( Personal Saving ):
 - computer/machine specialists,
 - do not convert ( return/revert ) it all before the whole universe check, verify, test, etc it all on the public ( GitHub ).
 - ghost and holy spirit,
-- also, the ghost and holy spirit ( original residence of the Supernova planet ) are involving and allow too for check, test, verify, etc those stuffs due the ecosystem and habitation reasons as the original residence in" Supernova planet " ( initial name )
+- also, the ghost and holy spirit ( original residence of the Supernova planet ) are involving and allow too for check, test, verify, etc those stuffs due the ecosystem and habitation reasons as the original residence in " Supernova planet " ( initial name )
 
 
