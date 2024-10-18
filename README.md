@@ -106,6 +106,8 @@ P.S ( Personal Saving ):
 - ~ the original owner of stuffs is the Supernova planet. also, those stuffs part of the public ( whole universe ) assets and properties ( alias " Public Facility ". meant: " Public facility " which " provided " by the Supernova planet )
 - ~ critical warning !!!
 - computer/machine specialists,
-- do not convert ( return/revert ) it all before the whole universe check, verify, test, etc it all on the public ( GitHub )
+- do not convert ( return/revert ) it all before the whole universe check, verify, test, etc it all on the public ( GitHub ).
+- ghost and holy spirit,
+- also, the ghost and holy spirit ( original residence of the Supernova planet ) are involving and allow too for check, test, verify, etc those stuffs due the ecosystem and habitation reasons as the original residence in" Supernova planet " ( initial name )
 
 
