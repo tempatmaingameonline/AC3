@@ -101,5 +101,7 @@ P.S ( Personal Saving ):
 - #4 red hat
 - #5 slackware
 - #6 and many other 
-- ~ all of the penalty stuffs will be written in their ( the suspect ) font, language, and machine compiler. the machine/computer specialists will convert it ( return/revert back ) into the original font, language and machine compiler later after the penalty stuffs " fulfilled ". and then it will save on the Supernova planet and will never available for any public later
+- ~ all of the penalty stuffs will be written in their ( the suspect ) font, language, and machine compiler. the machine/computer specialists will convert it ( return/revert back ) into the original ( base on the Supernova planet font, language, machine compiler ) font, language and machine compiler later after the penalty stuffs " fulfilled ". and then it will save on the Supernova planet and will never available for any public later
 
+- ~ the original owner of stuffs is the Supernova planet. also, those stuffs part of the public ( whole universe ) assets and properties ( alias " Public Facility " )
+- 
