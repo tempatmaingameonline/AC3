@@ -106,8 +106,8 @@ P.S ( Personal Saving ):
 - ~ all of the penalty stuffs will be written in their ( the suspect ) font, language, and machine compiler and then upload it into the github. the machine/computer specialists ( source: original living creature in the ecosystem and habitation on the Supernova planet) will convert it ( return/revert back, also add modification and codes ) into the original ( base on the Supernova planet font, language, machine compiler ) font, language and machine compiler later after the penalty stuffs " fulfilled ". and then it will save on the Supernova planet and will never available for any public ( whole universe. available on the Supernova planet only ) later. and then all of those stuffs will be deleted from the GitHub. but, the whole universe will check, test, verify ( ie: quality,cleannes, safety, etc ), etc those stuffs before the Supernova planet covert/revert back it all and delete it all from the internet and github 
 - ~ the original owner of stuffs is the Supernova planet. also, those stuffs part of the public ( whole universe ) assets and properties ( alias " Public Facility ". meant: " Public facility " which " provided " by the Supernova planet )
 - ~ critical warning !!!
-- computer/machine specialists,
+- #1 computer/machine specialists,
 - do not convert ( return/revert ) it all before the whole universe check, verify, test, etc it all on the public ( GitHub ).
-- ghost and holy spirit,
+- #2 ghost and holy spirit,
 - also, the ghost and holy spirit ( original residence of the Supernova planet ) are involving and allow too for check, test, verify, etc those stuffs due the ecosystem and habitation reasons as the original residence in " Supernova planet " ( initial name )
-- the previous star solar system ( before enter into the yellow star solar system ) location is still unknown in the exactly due " universe disaster " matter ( alias " Supernova " ). F0V or A0V ( sample reference: https://en.wikipedia.org/wiki/Color_index ). just one of it
+- ~ the previous star solar system ( before enter into the yellow star solar system ) location is still unknown in the exactly due " universe disaster " matter ( alias " Supernova " ). F0V or A0V ( sample reference: https://en.wikipedia.org/wiki/Color_index ). just one of it
