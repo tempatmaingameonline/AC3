@@ -110,5 +110,4 @@ P.S ( Personal Saving ):
 - do not convert ( return/revert ) it all before the whole universe check, verify, test, etc it all on the public ( GitHub ).
 - ghost and holy spirit,
 - also, the ghost and holy spirit ( original residence of the Supernova planet ) are involving and allow too for check, test, verify, etc those stuffs due the ecosystem and habitation reasons as the original residence in " Supernova planet " ( initial name )
-
-
+- the previous star solar system ( before enter into the yellow star solar system ) location is still unknown in the exactly due " universe disaster " matter ( alias " Supernova " ). F0V or A0V ( sample reference: https://en.wikipedia.org/wiki/Color_index ). just one of it
